@@ -7,4 +7,5 @@
 #### 🤔 Getting equipped with new technologies and updating myself with the latest technologies.
 #### 💬 Ask me about Web Development and any programming related stuff, would be glad to help.
 #### 📫 How to reach me: abhinavbenagi2@gmail.com
+#### 📫 How to reach me: https://www.linkedin.com/in/abhinav-benagi-878aa7208/
 #### 😄 Pronouns: He/his
