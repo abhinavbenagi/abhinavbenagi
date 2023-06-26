@@ -2,7 +2,6 @@
 
 ### Hello Guys, I'm Abhinav ! 👋
 * 🔭 I'm Chair Person of MSRIT IEEE Robotics Society
-* 🔭 I'm Chair Person of MSRIT IEEE Robotics Society
 * 🌱 Research Intern at Samsung PRISM
 * 👯 I’m looking out for internships and oppurtunities to work.
 * 🤔 Getting equipped with new technologies and updating myself with the latest technologies.
